@@ -1,0 +1,1 @@
+# yamashirosatomi.github.io
